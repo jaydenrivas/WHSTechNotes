@@ -19,3 +19,7 @@ computer science affects my life by making it eaiser. for example if i need to k
 
 ai can be helpful by helping with education.it can help by making it easyer to teach children.
 ai could be harmful by taking people jobs.this will result in people not being able to get money.also the ai couold be hacked aswell
+
+# October 28, 2024
+computer science and technogly will affect the election by making it more secure to vote.
+
