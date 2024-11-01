@@ -15,6 +15,9 @@ Because if your not precise you will make mistakes.if you miss details the code 
 
 computer science affects my life by making it eaiser. for example if i need to know somthing i can just search it up.if i need a answer for a math promblem i can just use the computer caculator.
 
+# October 1, 2024
+technogly affect my daily routine by helping me wake up because my alarm.i also use my phone to wake me up with the light. another way is that when i come home i just lay in my bed and play on the computer for awhile.that is how technogly affects my daily routine.
+
 # October 21, 2024
 
 ai can be helpful by helping with education.it can help by making it easyer to teach children.
