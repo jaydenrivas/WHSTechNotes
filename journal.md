@@ -26,3 +26,8 @@ ai could be harmful by taking people jobs.this will result in people not being a
 # October 28, 2024
 computer science and technogly will affect the election by making it more secure to vote.
 
+# November 4, 2024
+1.so people dont find out who you are and do bad stuff to you.
+2.make account private and only let people you in know your account.
+3.no
+4.dont tell people your personal information 
