@@ -24,10 +24,17 @@ ai can be helpful by helping with education.it can help by making it easyer to t
 ai could be harmful by taking people jobs.this will result in people not being able to get money.also the ai couold be hacked aswell
 
 # October 28, 2024
+
 computer science and technogly will affect the election by making it more secure to vote.
 
 # November 4, 2024
+
 1.so people dont find out who you are and do bad stuff to you.
 2.make account private and only let people you in know your account.
 3.no
 4.dont tell people your personal information 
+
+# November 12, 2024
+
+we have been learning to do stuff with the car like control in and move it and struff.we have been overcoming promblems by learning to do stuff with the car.that helps us learn about technogly.
+technogly can play a role in helping us solve those promblems by providing extra support to solve this stuff.
