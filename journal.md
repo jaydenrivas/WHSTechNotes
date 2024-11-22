@@ -38,3 +38,7 @@ computer science and technogly will affect the election by making it more secure
 
 we have been learning to do stuff with the car like control in and move it and struff.we have been overcoming promblems by learning to do stuff with the car.that helps us learn about technogly.
 technogly can play a role in helping us solve those promblems by providing extra support to solve this stuff.
+
+# November 19,2024
+
+technogly helps food become more cheap because technogly helps more food grow and more easier to grow food.there are negative effects to relying on technogly to make food tho.because if the energy ever goes out alot of the food makers will not work so we will not have a lot of food.it also changes the way we purchase food because we can order food online
