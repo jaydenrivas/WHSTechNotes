@@ -42,3 +42,9 @@ technogly can play a role in helping us solve those promblems by providing extra
 # November 19,2024
 
 technogly helps food become more cheap because technogly helps more food grow and more easier to grow food.there are negative effects to relying on technogly to make food tho.because if the energy ever goes out alot of the food makers will not work so we will not have a lot of food.it also changes the way we purchase food because we can order food online
+
+# December 2,2024
+
+.making life better
+.not really
+.ai taking peoples jobs
