@@ -49,10 +49,10 @@ technogly helps food become more cheap because technogly helps more food grow an
 .not really
 .ai taking peoples jobs
 
-# January 13, 2024
+# January 13, 2025
 
 what do i think about the tech industry moving towards ai.i thinks its bad because ai removes jobs for people.aswell it is bad for the envoirment.i think it would limit workers and i dont got anyways to prepare for it.that is what i think about the tech industry moving ai
 
-# January 21, 2024
+# January 21, 2025
 
 By showing they can ban anything they want.they could increase secruity by getting more secure severs.if i was a developer for tiktok i would get better servers.the situition is meaningless i dident learn anything
