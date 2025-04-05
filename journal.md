@@ -57,6 +57,13 @@ what do i think about the tech industry moving towards ai.i thinks its bad becau
 
 By showing they can ban anything they want.they could increase secruity by getting more secure severs.if i was a developer for tiktok i would get better servers.the situition is meaningless i dident learn anything
 
+# March 17, 2025
+
+i used my computer often.it helped eterntain me because i played games on it.i dont know if i can connect the computer to class.
+
+# March 31, 2025
+im feeling fine,math,i dont know,to pass shcool,i dont know
+
 # March 3, 2025
 
 i think we treated the subsite good at least in our peroid.we were not to loud and did some work.we were mostly respectful and corpptive.tho next time we could be doing more of our work.
