@@ -67,3 +67,7 @@ im feeling fine,math,i dont know,to pass shcool,i dont know
 # March 3, 2025
 
 i think we treated the subsite good at least in our peroid.we were not to loud and did some work.we were mostly respectful and corpptive.tho next time we could be doing more of our work.
+
+# April 7, 2025
+
+how could ai be useful to study?well i cant really think of any ways it will be useful.you can simply use google instead of ai.so me personally i can not see myself using ai.
