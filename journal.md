@@ -71,3 +71,9 @@ i think we treated the subsite good at least in our peroid.we were not to loud a
 # April 7, 2025
 
 how could ai be useful to study?well i cant really think of any ways it will be useful.you can simply use google instead of ai.so me personally i can not see myself using ai.
+
+# April 14, 2025
+
+I belive such bans will be dentrimatel to students because it will not have any affect on cybulling.This is becuase people who get cyberbullied will not stop getting cybullied just because they cant acceses socail media at shcool.Banning phones also has a saftey issue since if a emergancy happens the students cant call their parents to pick them up.Banning phones will have little affect on learning since if they dont do works when there on the phone then they wont be doing work without phones.If such restrictions happend at our shcool i wouldent have any reaction because it doesnt affect me.That is how i feel about shcools banning phones.
+
+
