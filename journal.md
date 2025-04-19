@@ -61,6 +61,10 @@ By showing they can ban anything they want.they could increase secruity by getti
 
 i used my computer often.it helped eterntain me because i played games on it.i dont know if i can connect the computer to class.
 
+# March 24, 2025
+
+How do theese changes affect the traditional viewing experience and your connection to the games?Well theese changes affect the viewing exprince by making it a less enjoyable expirnce.It will also affect your connection to the games by making them feel less real because of the use of ai.That is how i think the use of ai will affect the veiwing exprience.
+
 # March 31, 2025
 im feeling fine,math,i dont know,to pass shcool,i dont know
 
