@@ -80,4 +80,6 @@ how could ai be useful to study?well i cant really think of any ways it will be 
 
 I belive such bans will be dentrimatel to students because it will not have any affect on cybulling.This is becuase people who get cyberbullied will not stop getting cybullied just because they cant acceses socail media at shcool.Banning phones also has a saftey issue since if a emergancy happens the students cant call their parents to pick them up.Banning phones will have little affect on learning since if they dont do works when there on the phone then they wont be doing work without phones.If such restrictions happend at our shcool i wouldent have any reaction because it doesnt affect me.That is how i feel about shcools banning phones.
 
+# May 5, 2025
 
+i think 100 humans will win because they can overwhelm the gorallia.and they are also much smarter than a gorallia.this chalenge is a connection bewtween enteriment and education
