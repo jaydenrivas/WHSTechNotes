@@ -83,3 +83,8 @@ I belive such bans will be dentrimatel to students because it will not have any 
 # May 5, 2025
 
 i think 100 humans will win because they can overwhelm the gorallia.and they are also much smarter than a gorallia.this chalenge is a connection bewtween enteriment and education
+
+# May 12, 2025
+
+the trend is not good becuase it breaks shcool proptey.saftey matter because if you dont to stuff safley becuasse it will end bad.
+#
